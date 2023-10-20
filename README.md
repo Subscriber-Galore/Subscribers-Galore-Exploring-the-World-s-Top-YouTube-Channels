@@ -1,4 +1,4 @@
-# Subscribers-Galore-Exploring-the-World-s-Top-YouTube-Channels
+# PROJECT TITLE : Subscribers Galore Exploring the World's Top YouTube Channels
 ## TEAM ID : NM2023TMID07649
 ### TEAM LEADER : ASHIKKA SHRUTHI V
 ### TEAM MEMBERS : JAYA PRISCILLA G, JAYALAKSHMI A, RESHMA J
